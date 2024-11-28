@@ -79,6 +79,6 @@ We specialize in making unique and outstanding smart contracts. everything runs 
 
 📧 **24/7 Support** 
 
-📧 **Website& & Telegram Channel of Vouches Very Soon** 
+📧 **Check out our Official Telegram Channel, See how the work is done** 
 
-Telegram : https://t.me/mrbigflash
+Telegram : https://t.me/mrbigflash1
