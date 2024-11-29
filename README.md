@@ -81,4 +81,6 @@ We specialize in making unique and outstanding smart contracts. everything runs 
 
 📧 **Check out our Official Telegram Channel, See how the work is done** 
 
-Telegram : https://t.me/mrbigflash1
+Contact : https://t.me/mrbigflashh
+
+Our Channel With Announcements https://t.me/mrbigflash1
