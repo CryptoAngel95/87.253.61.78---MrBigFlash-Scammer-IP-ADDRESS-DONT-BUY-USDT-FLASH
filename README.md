@@ -1,4 +1,4 @@
-# USDT-Flash
+# this is scam!!! USDT-Flash
 
 
 ![gBOZs1731970533](https://github.com/user-attachments/assets/808320f3-6dfc-43d6-8c5d-6fb9f37799c9)
