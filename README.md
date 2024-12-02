@@ -70,9 +70,7 @@ We specialize in making unique and outstanding smart contracts. everything runs 
 ---
 
 
-‼️**Since we care about our uniqueness and ability stand out, we stopped sending test USDT flashes, after we investigated that our free flashes were being used in scamming and trying create our copies**‼️
 
-‼️**Because of that you can ask for software beforehand, you will get password after**‼️
 
 
 ### **🚀 Experience the Revolution with USDT Flash Software Today!**
